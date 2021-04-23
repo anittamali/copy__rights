@@ -1,0 +1,1 @@
+# copy__rights
